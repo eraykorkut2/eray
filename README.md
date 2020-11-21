@@ -1,2 +1,0 @@
-# eray
-çabuk ol
